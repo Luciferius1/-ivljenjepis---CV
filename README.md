@@ -1,3 +1,3 @@
 Moj življenjepis je možno prebrati na zgornji datoteki:
 
-CV-Europass.pdf
+CV-Europass-Barukčić.pdf
